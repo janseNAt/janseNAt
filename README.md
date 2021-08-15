@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @janseNAt
-- 👀 I’m interested in lenguash
+- 👀 I’m interested in math
+- 
 - 🌱 I’m currently learning english
 - 💞️ I’m looking to collaborate on world
 - 📫 How to reach me e-mail
