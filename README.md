@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @janseNAt
-- 👀 I’m interested in math
+- 👀 Interesse em tecnologia
 - 
 - 🌱 I’m currently learning english
 - 💞️ I’m looking to collaborate on world
